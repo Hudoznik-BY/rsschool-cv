@@ -4,4 +4,6 @@ Experience
 
 Hard skills
 
-Soft skills      
+Soft skills
+
+iNTERESTS
