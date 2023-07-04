@@ -7,3 +7,5 @@ Hard skills
 Soft skills
 
 iNTERESTS
+
+cONTACTS
