@@ -13,4 +13,4 @@ Throughout my fifteen years of legal practice in various industries, I have hone
 Independent, efficient. Easy to communicate, ready to negotiate with opponents on key issues, preliminarily analyzing the outcome of the case.
 
 ###### INTERESTS
-
+Music, musical instruments. I like reading fiction, watching author's movies.  
