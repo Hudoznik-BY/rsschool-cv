@@ -10,7 +10,7 @@ Throughout my fifteen years of legal practice in various industries, I have hone
 
 
 ##### Soft skills
-
+Independent, efficient. Easy to communicate, ready to negotiate with opponents on key issues, preliminarily analyzing the outcome of the case.
 
 ###### INTERESTS
 
